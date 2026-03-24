@@ -1,2 +1,2 @@
 # Endless-Rage-ok.github.io
- WHY ARE YOU READING THIS
+This is the page for my Photography and electronics repair/tech support portfolio 
